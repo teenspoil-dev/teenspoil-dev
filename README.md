@@ -2,7 +2,7 @@
 - 👀 I’m interested in liminal space aesthetic, producing music, reviving old tech & writing code
 - 🌱 I’m currently learning python, html and css
 - 💞️ I’m looking to collaborate on anything the world wants to throw at me.
-- 📫 How to reach me: nix.0g on instagram
+- 📫 How to reach me: nixogg on instagram.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm a fan of lackadaisy (comic by Tracy)
 
